@@ -1,4 +1,6 @@
-# Kazuaki Toyoura (Associate Professor)
+# Kazuaki Toyoura, PhD.
+Associate Professor
+
 Department of Materials Science and Engineering, Kyoto University,
 
 Yoshida, Sakyo, Kyoto 606-8501, Japan
